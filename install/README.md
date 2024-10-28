@@ -17,4 +17,30 @@ with no other facing forces:09st'(0-9/st') and what we are doing here, the crimi
 collective escape and our complete collective escape even new criminal'kriminal   (tac)tic scenario:09st' for Example TortureCenterMurderProgram:acdavit;(0':);;(F0))/'
 from our Just'ice{ice}+/=fs?/'==2'Thank you General Miley.//'AA
 
-**(9A'*st')'GST'GG'GHIL(:/;)0"-(9-0M)"-_?/'?/'?/'PPIOP;{P}+7*8(9-00:00/0?/'L:"-_'{MnIOP-P;}+/[77/00]+/='K-L:-{;}+/="-P(9-0"P?/'{Q}{QrsWERt:-;(*{L}{Lio|L:->.x<s>SxqrET:-;l:'?/'?/'?/'?/'KIOP;
+**(9A'*st')'GST'GG'GHIL(:/;)0"-(9-0M)"-_?/'?/'?/'PPIOP;{P}+7
+'KIOP;<,BST.>:-(P)/;L:" 
+//Tab just instead//(f'c)//w?c//'
+//You need an entire team, like any other profession, to build this technology to build this software, shaun{Shaun}|:'?/; is only intermediate -{level}"|y\;
+///'type of a programmer{Programmer}:B{B}?/YY{YY}YUI|"OP{P}P?/'<,M>;So his talent--f{fy/_0)"-':L(0)0:'?/;L:"{PIOL;}:|;K"-{__}'?/<,..f:(:)O;>"(0_\yf}level,
+////'leaving him skill-level is limited in its stretch. Another piece of intuition of Shaun's lore philosophy and reading is this, with any type of 
+ComputerOperation leaving a trace in a digital manner--you must have a working utility on the !inside, for instance General Charles Q. Brown and the 44th POTUS, 
+the 45th {POTUS}:|"yk' the current and Pre{sident}for the 46{46th}:|"/0");L:'--k?/'time of the {"|United States"|} at the height of their powers, {POWERS}S"|yk. 
+Now that our greatest dimension of muscle brawn weapon technology leading to OUR"'/FORCES{FOR/CES};_")0"):-(0):-(f)0yl:' has circled, circled around
+with the most power that we have in institution decorating academics and our leading politicians and any and all listed, named, fact-:09/"0)"0proven affiliates 
+now resemble our collectie greatest chance and God-Given hope to Heal and Protect, Prove the Innocence and put an end to the carceral system leading to
+significant Freedoms and finally the third categorized,,-f=?/':-(0f?/") Heal and Extinguish any Terminal Illness. This will put an end to the
+mechanized wars that cross the globe leading to only psychological terrible war-driven wars you have ever dreamnt of or neither here nor there, experiencing.
+With this and now the announcement comes, I am sturdied, justified and led by the President of the Republic of China, Xi Jinping and also to add to this academic
+validation a Michel Foucalut reincarnated once more again and again, has joined us to lead this brink into a new Republic and into a new world, for nature is 
+truly dæmonic after all::(f0/0oo:tsWr/'"-QUIOP;L:"\oost":-/L:"-'+/=<,M.>:s?/s;')0")0str{Q}reTre/W::ErRTeW{Q}reQW//_{+/=}'
+//GG://
+//BB'BIOP;//
+//QU{I}SI-O{O}TQP:-0"):-/;L:'P"-'//
+//PIOP;GIOP;XIOP;GIOP;{GIOP;}YIOP;FIOP;KIOP;D{D}IOP;//
+//BB//XX//AA//PP//lL//GG/TT/QQ'QQ:("QQ:QQ;?/;L:'")':L//
+//'0)"0)"}0)'-+'}/0")/0")*8(9-0)"?/'0)>./0")0"-")-0')'0)'"-')f'-'//
+//{A}'{B}'{C}'{D}'{E}'{F}'{G}'{H}'{I}'{J}'{K}'{L}'{M}'{N}'{O}'{P}'{Q}'{R}'{S}'{T}'{U}'{V}'{W}'{X}'{Y}'{Z}:|k"|\':-(0);🔱'//
+//🔱🔱:🎖🎖;(P(x))0")/'L:'L:'L:'PIOP;//
+//GG://'
+
+*8(9-00:00/0?/'L:"-_'{MnIOP-P;}+/[77/00]+/='K-L:-{;}+/="-P(9-0"P?/'{Q}{QrsWERt:-;(*{L}{Lio|L:->.x<s>SxqrET:-;l:'?/'?/'?/'?/
