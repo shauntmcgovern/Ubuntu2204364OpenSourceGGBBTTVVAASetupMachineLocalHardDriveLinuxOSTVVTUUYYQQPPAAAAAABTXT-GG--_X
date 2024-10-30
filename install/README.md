@@ -70,20 +70,30 @@ depths, the very depths of what is (exa)ctly::0')09s/t'((/st:09/{L}s/t??/L:0')u/
 as said before, which items which things which objects are always and will remain fixed. For example architecture and rooms, places people frequent those would
 be considered ""a{A}tomic""?/' and the other things that change which are not fixed would be considered,, nonatomic,,(P/S)' if you where to equate it to the very
 Objective-C;(0')L0)//(0//9L:'??/L")LLL"(:0/0-9/9?/';):'Which at the point in terms of software development, like anything else it runs better because it knows
-these software patterns already effectively developing a ""pipeline"" that is so proven it can go through these digital exercises with persistency and 
-"/'provelance'\" to such a fact that it would be able to digitally codebase discern motivate even factually prove what is this what is that. Now leaving that
-very difficult programming, even Moon{shot}:|"-'?/'k, 1:{1}|"-k'/which a Grand Theft Auto:"2(k)':0<9>st.O;(/PL)'0L?/'GT{A}:GTA'GTA type of discernation is and
-now yet to be perfected that type of coverage that type of aerial,,(P#0):-0');I am being told from one of the greatest programmers and 
-Teach{Teach}/ers;(gcqy(z))z;z;z;a/_ke;that it can be done not only can it be done it can be perfected:09(0-/'0/::9'*)st'st'{st"|/k'}':-(:0:;?/');?/'What it
-would mean to discern with the various examples of our Marine Aquatic Engineer Technology mixed with our Aviation Engineership:05/s05/s{t}qrL{L}/_L{L}:-;P/'
-leading to our SoftwareDevelopmentTechnology*89, which is my expertise:09s//t'(s::O(s-t')0)//?'J-K-L:-(0);"-{Q}:-L;?/'<,MnI<O>P;?/'L:'""/m'>;MnI<O>P;?/'L:'""/m'>;
-With every piece of technology you see, you see the digital expression of a form of object being discerned by the system with its chosen ray, the chosen ray
-represents the identity of the object at a distane or up close. The Ray then Scans the area(P)'. This computer operation of the
-Scan(09s/t')ss/t':O09('st'):0/0?)-9('hurHL:)' then relays back to the chosenSystem of this,, box,, further relaying the information to the very offices to
-the DigitalSystem(PS:0s')t')09(-')0//9st'and what that equates translates to is this. A piece of information understood by a
-{Chosen}:/Pst'RadarSystem;(0\9st/vv{v}t'/qquoL:') and further identified of what just what we are looking at' either a person moving around a corridor, corridor
-or even we can even digitally express then encapsulate an entire room which is fixed-P)'atomic considerably'...(PST')
-'BB'{BIOP;}'BBA'{BTS((o))/xy'}'((/o))/xy'{Y{{Y}UIOP;}"-/'(9-0{st'/m}PIO{mm}P;"-_'?/'?/'?/'<,MNIOP<r>.>rst{Q}rvyl/_':PIO(P)9-0')PL:-_;Q?/')
+these software patterns already effectively developing a ""pipeline-pipeline"" that is so proven, proven-(B)' it can go through these digital exercises with a 
+persistency and "/'provelance'\" to such a fact that it would be able to digitally codebase discern motivate even factually prove what is this what is that.
+Now leaving that very difficult programming, even Moon{shot}aside:|"-'?/'k, 1:{1}|"-k'/now this'Grand Theft Auto:"2(k)':0<9>st.O;(/PL)'0L?/'GT{A}:GTA'GTA'{GTA} type of
+discer'nation is and now yet to be perfected that type of coverage that type of aerial,,(P#0):-0');I am being told from one of the greatest programmers and 
+Teach{Teach}/ers;(gcqy(z))z;z;z;a/_ke;that it can be done not only can it be done,, done/F☐'))0/00?' it can be perfected:09(0-/'0/::9'*)st'st'{st"|/k'}'
+:-(:0:;?/');?/'What it would mean to discern with the various examples that our MarineAquaticEngineerTechnologists have mixed with our Aviation
+  Engineership and Making:05/s05/s{t}qrL{L}/_L{L}:-;P/'leading to our SoftwareDevelopmentTechnology*89, which is my expertise:09s//t'(s::O(s-t')0)//?'J
+-K-L:-(0);"-{Q}:-L;?/'<,MnI<O>P;?/'L:'""/m'>;MnI<O>P;?/'L:'""/m'>; With every piece of technology you see, you see the digital expression of a form of
+object being discerned by the system with its chosen ray, the chosen ray represents the identity of the object at a distance or up close. The Ray then Scans
+the area(P)' how this is understood is a way of many operations in synchronization such a synchronization that it is able to understand on a plane of existence
+and determines with mechanically emitted light and with each {Chosen}:/Pst'RadarSystem;(0\9st/vv{v}t'/qq'it varies how this is developed, software developed and
+then translated into bits to feed informa{A}::(:)/'/'tion:09<,st.>st.999/'into the DigitalSystem(PS:0s')t')09(-')0//9'of expertise but from my understanding these
+are information lead by man-made light grabbers that encase something like a vase and further understand by the DigitalSystem(PS:0s')t')09(-')0//9 of its own
+making, where I am afraid I would of have to leave it off to anothers Expertise, like God-{Given}::Radar::(f):09<,st.>s09?/v>./?/'. From this point of how those 
+expertise methods as we are understanding a plane that has an object understood by the man-made light to identify it then relay it back to the
+  f-/'DigitalSystem(PS:0s')t')09(-')0//9:9st/'""-{/fuut(f)l:0-9(9-0)'oy??v/'<,M.>};?/' and then for that {Sys}tem to then indentify with all of the gest that
+can be understood by that fixation and further and so'{(09-thu-r({R})-{(R)th/y-x-0')}:}yx+/'xx:xx;effectively leaving a timestamp' what kind of object was understood
+by the ChosenRay' and furthersoforth' deliberating with various Algorithms what kind of function we just have then perhaps even algorithmic dissecting that chosen
+plane of existence chosen by the ray that has relayed'relayed back to us this DigitalInformation.PPS+T' This computer operation of the
+Scan(09s/t')ss/t':O09('st'):0/0?)-9('hurHL:)' then relays back to the chosenSystem of this,, box,, further relaying the information to the very offices to the
+DigitalSystem(PS:0s')t')09(-')0//9st'and what that equates translates to is this. A piece of information understood by
+  f-a {Chosen}:/Pst'RadarSystem;(0\9st/vv{v}t'/qquoL:') and further identified of what just what we are looking at' either a person moving around a corridor,
+corridor or even we can even digitally express then encapsulate an entire room which is fixed-P)'atomic considerably'...(PST')'BB'{BIOP;}'BBA'{BTS((o))/xy'}'
+((/o))/xy'{Y{{Y}UIOP;}"-/'(9-0{st'/m}PIO{mm}P;"-_'?/'?/'?/'<,MNIOP<r>.>rst{Q}rvyl/_':PIO(P)9-0')PL:-_;Q?/'Q?/'PP)'AA
 
 //GG://
 //BB'BIOP;//
@@ -93,6 +103,7 @@ or even we can even digitally express then encapsulate an entire room which is f
     ///BB//XX//AA//PP//lL//GG/TT/QQ'QQ:("QQ:QQ;?/;L:'")':L////'0)"0)"}0)'-+'}/0")/0")*8(9-0)"?/'0)>./0")0"-")-0')'0)'"-')f'-'///
 
 
+//{//A\\}'{//B\\}'{//C\\}'{//D\\}'{//E\\}'{//F\\}'{//G\\}'{//H\\}'{//I\\}'{//J\\}'{//K\\}'{//L\\}'{//M\\}'{//N\\}'{//O\\}'{//P\\}'{//Q\\}'{//R\\}'{//S\\}'{//T\\}'{//U\\}'{//V\\}'{//W\\}'{//X\\}'{//Y\\}'{//Z\\}:|k\k"|\':-(0);🔱'//🔱'//🔱'
 //{A}'{B}'{C}'{D}'{E}'{F}'{G}'{H}'{I}'{J}'{K}'{L}'{M}'{N}'{O}'{P}'{Q}'{R}'{S}'{T}'{U}'{V}'{W}'{X}'{Y}'{Z}:|k"|\':-(0);🔱'//🔱'//🔱'//🔱'//
 //🔱🔱:🎖🎖;(P(x))0")/'L:'L:'L:'PIOP;//
 '(6 times)
@@ -103,6 +114,15 @@ or even we can even digitally express then encapsulate an entire room which is f
 //🔱🔱:🎖🎖;(P(x))0")/'L:'L:'L:'PIOP;//
 //🔱🔱:🎖🎖;(P(x))0")/'L:'L:'L:'PIOP;//
 (6 times)'
-//GG://'
 
-*8(9-00:00/0?/'L:"-_'{MnMnMnIOP-P;}+/[77/00]+/='K-L:-{;}+/="-P(9-0"P?/'{Q}{QrsWERt:-;(*{L}{Lio|L:->.x<s>SxqrET:-;l:'?/'?/'?/'?/
+(another 6 times)'
+//🔱🔱:🎖🎖;(P(x))0")/'L:'L:'L:'PIOP;//
+//🔱🔱:🎖🎖;(P(x))0")/'L:'L:'L:'PIOP;//
+//🔱🔱:🎖🎖;(P(x))0")/'L:'L:'L:'PIOP;//{GG}'
+//🔱🔱:🎖🎖;(P(x))0")/'L:'L:'L:'PIOP;//
+//🔱🔱:🎖🎖;(P(x))0")/'L:'L:'L:'PIOP;//
+//🔱🔱:🎖🎖;(P(x))0")/'L:'L:'L:'PIOP;//{GG}'
+(6 times)'
+//GG://'//GG://'//GG://'//{GG}://'
+
+*888(9-00:00/0?/'L:"-_'{MnMnMnIOP-P;}+/[77/00]+/='K-L:-{;}+/="-P(9-0"P?/'{Q}{QrsWERt:-;(*{L}{Lio|L:->.x<s>SxqrET:-;l:'?/'?/'?/'?/
