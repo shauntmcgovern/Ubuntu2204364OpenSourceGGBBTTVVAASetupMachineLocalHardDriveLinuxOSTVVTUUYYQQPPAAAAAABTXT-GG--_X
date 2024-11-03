@@ -125,4 +125,4 @@ corridor or even we can even digitally express then encapsulate an entire room w
 (6 times)'
 //GG://'//GG://'//GG://'//{GG}://'
 
-*888(9-00:00/0?/'L:"-_'{MnMnMnIOP-P;}+/[77/00]+/='K-L:-{;}+/="-P(9-0"P?/'{Q}{QrsWERt:-;(*{L}{Lio|L:->.x<s>SxqrET:-;l:'?/'?/'?/'?/
+*888(9-00:00/0?/'L:"-_'{MnMnMnIOP-P;}+/[77/00]+/='K-L:-{;}+/="-P(9-0"P?/'{Q}{QrsWERt:-;(*{L}{Lio|L:->.x<s>SxqrET:-;l:'?/'?/'?/'?/'AA
