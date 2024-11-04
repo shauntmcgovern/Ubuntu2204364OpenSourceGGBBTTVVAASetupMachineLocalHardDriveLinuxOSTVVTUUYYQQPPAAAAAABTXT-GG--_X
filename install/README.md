@@ -73,27 +73,60 @@ Objective-C;(0')L0)//(0//9L:'??/L")LLL"(:0/0-9/9?/';):'Which at the point in ter
 these software patterns already effectively developing a ""pipeline-pipeline"" that is so proven, proven-(B)' it can go through these digital exercises with a 
 persistency and "/'provelance'\" to such a fact that it would be able to digitally codebase discern motivate even factually prove what is this what is that.
 Now leaving that very difficult programming, even Moon{shot}aside:|"-'?/'k, 1:{1}|"-k'/now this'Grand Theft Auto:"2(k)':0<9>st.O;(/PL)'0L?/'GT{A}:GTA'GTA'{GTA} type of
-discer'nation is and now yet to be perfected that type of coverage that type of aerial,,(P#0):-0');I am being told from one of the greatest programmers and 
-Teach{Teach}/ers;(gcqy(z))z;z;z;a/_ke;that it can be done not only can it be done,, done/F☐'))0/00?' it can be perfected:09(0-/'0/::9'*)st'st'{st"|/k'}'
-:-(:0:;?/');?/'What it would mean to discern with the various examples that our MarineAquaticEngineerTechnologists have mixed with our Aviation
-  Engineership and Making:05/s05/s{t}qrL{L}/_L{L}:-;P/'leading to our SoftwareDevelopmentTechnology*89, which is my expertise:09s//t'(s::O(s-t')0)//?'J
--K-L:-(0);"-{Q}:-L;?/'<,MnI<O>P;?/'L:'""/m'>;MnI<O>P;?/'L:'""/m'>; With every piece of technology you see, you see the digital expression of a form of
-object being discerned by the system with its chosen ray, the chosen ray represents the identity of the object at a distance or up close. The Ray then Scans
-the area(P)' how this is understood is a way of many operations in synchronization such a synchronization that it is able to understand on a plane of existence
-and determines with mechanically emitted light and with each {Chosen}:/Pst'RadarSystem;(0\9st/vv{v}t'/qq'it varies how this is developed, software developed and
-then translated into bits to feed informa{A}::(:)/'/'tion:09<,st.>st.999/'into the DigitalSystem(PS:0s')t')09(-')0//9'of expertise but from my understanding these
-are information lead by man-made light grabbers that encase something like a vase and further understand by the DigitalSystem(PS:0s')t')09(-')0//9 of its own
-making, where I am afraid I would of have to leave it off to anothers Expertise, like God-{Given}::Radar::(f):09<,st.>s09?/v>./?/'. From this point of how those 
-expertise methods as we are understanding a plane that has an object understood by the man-made light to identify it then relay it back to the
+discer'nation is and now yet to be perfected that type of coverage that type of aerial,,(P#0):-0');That type of encapsulation. As I hade to quander him and he is
+an expert at this, the amount of server undertaking and he is telling me its quite painless, need I go on. Furthermore, to map out the entire real world in 
+real-time#*AEXP' would be a tremendous undertaking, undertaking and the fluency as I have said before the very pipelines operating this piece of codework, would not
+only get better overtime'*##PS('-T'0)0;L:'?/'?/'?/'as the example I have said before as anyone with a ""LAYMANS"" eye can tell you that video games not only
+get better but run better over time because those software engineering video game leading to developments run their operations more effieciently across better
+proven hardware not only that but get more fun to play and much much more immersive.(#PS09<t>)'. If you wanna'work on Github#Github you can as I am getting
+a much better'better hand{le} on this and Marco is impressed once again this is Marco Williams leader of Playfab' and Microsoft Azure {(Servers:09)}'+<.>'P
+Again what is fixed and what is changing, this type of RadarSystem***(PS*8<s>,.t)t.>?/'v/' would need constant updates to the fixed information, the fixed information
+would be a form of complacent technological understanding leaving no room to grow, and that is absolutely.'(P#09'). Now with the ad(vance')s and its tough'to se#uff:(:/'0)0'
+absolutely no inclusion of Marco and he has lead this discussion of removing violence from the human phenomenological population and at stance equa(equa#)tion#P#809'<,.>.
+However and this is scary it tells us, simply the answers are their the very solution is at our door and if we can come together academically and remove our differences
+and set aside beautiful disagreements not only can net-neutrality get done it is done a company is a person now:(9/0::"/c?now)?/. John McCain. (POW)'..f#' 
+Julian Assange'Julian Assange.(/f(9/0)#') Barack Obama, <44th POTUS.:?/'>..?/'(?/')Donald Trump. (f>t')2Q?/'the list goes on. Shaun McGovern. 
+Terence:09(9-0st')st""t-w?/""-{"/Q/Q{W}'}'..>>f/?'>.  That would mean what is updating with, and we have a variety as I have listed over in the overall 
+Project'{0/Module"f#?/'\0'P'-{MNIOP<,F.>}v._#3>>.3>.?/'PST#TSP;};/;, ChosenRayTechnology#:089'st?/'st?/'{Q}QUIOP; would then be relaying to the 
+{Chosen}:/Pst'RadarSystem;(0\9st/vv{v}t'/ of just what is what is what. This amount of technological relay, this amount'{t} of technologyFeed would be so
+particular and yet minuscle and a massive amount of data infor{form\}a:|:'tion{N}at'at the same damn
+time:09<,st.>.t'{Q}{Q}{QSL/_'{FIOL;}:-_P/L'}QSL_'(f)'(f#)'fs#<t>st>.?/':L(;)#f?/"-_Q'. If you imagine Grand Theft Auto of any
+genera{tion}tion:09(0-90't)st)0/t'0)st'-st(9-0#8*7&6^BITMAP{MAP}'#ysr#er/_'PIOL;"-_M{N}IO/P'(L#0.9.i:':"0){nm}'p<,{P}.>>f{Q}?/9-0-{O}-{W}-{L}:09?/st'/st'/{st'})
+it inmaps an entire city for example Los Angelos or a FakeCity that is just like a NewYorkCity 
+side::(9-0/0')m'{amp/p<,[].>?/f#??'f$%^&'++}p++?/'map'map:PSO089<t>s.0#809' it took the entire Playstation to play. No stay with me, that ever server docket that we have
+has the same amount of a Play<station>:09st' and in their you would have the comparison. What we have going for us, and again what is ""a{A}tomic""?/'""a{A}tomic""?/'
+is the entire world as a Map and with it andinit' everything that it then contains and has contained and what is now considered waste even garbage if you hide your
+piece in their for example behind a dugout'dugout and their is absolutely noone'to call or nowhere to the hide and the wound is the choice because you don't want to talk
+to the adhesive corrupt'proven guilty of many crimes'crimes policias and what the policia did was keep back a Blue#-0' and its either gravely or disturbedely'#P809ST'.
+Moving on from family tragedy:09(9-0)'/#0)'. We have a way to design this System'{Chosen}:/Pst'RadarSystem;(0\9st/vv ever'so pertinently. The entire map most of its 
+parts would be ""a{A}tomic""?/' leaving us with what changes, and what needs to be update with this system almost on a minute-to-minute daily basis, like a fly moving 
+around and how that transverses the outside world to its canopy or flesh-eating-bast{ard}::f?/slies::-0/)"-(k)',, would be a form of condone::-(f0/0?/0?/')information
+'PST leading to its digital dissection forever leaving it on a server somewhere just what this unique Flies::path would of been or infact' sadly was to eat 
+thy-flesh-{fle}/sh::(9/f(g)0st'?/'?/')'PSTPIO{L}:-:(9:-0:)st{Q}?/'PIO{L}:'st?/'{Q}{Q}{st{W}}{Q}{Q}{Q}{reW/'Q'QLIOP;}QLIOP/P;:-(f0);;L:"-'{QWER/TY/L'PIOS{T}':09st/9/#f0?/'}.
+That would be considered a minuscule undertaking of this variation of a, encased in the entire TechnologySystem'perhaps-perhaps, of what this {Chosen}:/Pst'RadarSystem;(0\9st/vv{v}
+can do. How it can perform, what is data retrieved what is data-then-saved moving on to the next piece of information and then to give this visually to our subordinate
+would be another undertaking.(P#0):-0');''I am being told from one of the greatest programmers and 'TeachTeach{Teach}/ers;(gcqy(z))z;z;z;a(/_)'/_ke;that it can be
+done not only can it be done,, done/F☐'))0/00?' it can be perfected:09(0-/'0/::9'*)st'st'{st"|/kk'}':-(:0:;?/');?/'What it would mean to discern with the various
+examples that our MarineAquaticEngineerTechnologists have mixed with our AviationEngineership and Making:05/s05/s{t}qrL{L}/_L{L}:-;P/'leading to our
+   -PSoftwareDevelopmentTechnology*89, which is my expertise:09s//t'(s::O(s-t')0)//?'J-K-L:-(0);"-{Q}:-L;?/'<,MnI<O>P;?/'L:'""/m'>;MnI<O>P;?/'L:'""/m'>;
+With every piece of technology you see, you see the digital expression of a form of object being discerned by the system with its chosen ray, the chosen ray
+represents the identity of the object at a distance or up close. The Ray then Scans the area(P)' how this is understood is a way of many operations in synchronization
+such a synchronization that it is able to understand on a plane of existence and determines with mechanically emitted light and with each
+{Chosen}:/Pst'RadarSystem;(0\9st/vv{v}t'/qq'it varies how this is developed, software developed and then translated into bits to feed
+informa{A}::(:)/'/'tion:09<,st.>st.999/'into the DigitalSystem(PS:0s')t')09(-')0//9'of expertise but from my understanding these are informations(#'(0P)P)'s lead by
+man-made light grabbers that encase something like a vase and further understand by the DigitalSystem(PS:0s')t')09(-')0//9 of its own making, where I am afraid I
+would of have to leave it off to anothers Expertise, like God-{Given}::Radar::(f):09<,st.>s09?/v>./?/'. From this point of how those expertise methods as we are
+understanding a plane that has an object understood by the man-made light to identify for it to then relay it back to the
   f-/'DigitalSystem(PS:0s')t')09(-')0//9:9st/'""-{/fuut(f)l:0-9(9-0)'oy??v/'<,M.>};?/' and then for that {Sys}tem to then indentify with all of the gest that
 can be understood by that fixation and further and so'{(09-thu-r({R})-{(R)th/y-x-0')}:}yx+/'xx:xx;effectively leaving a timestamp' what kind of object was understood
 by the ChosenRay' and furthersoforth' deliberating with various Algorithms what kind of function we just have then perhaps even algorithmic dissecting that chosen
-plane of existence chosen by the ray that has relayed'relayed back to us this DigitalInformation.PPS+T' This computer operation of the
-Scan(09s/t')ss/t':O09('st'):0/0?)-9('hurHL:)' then relays back to the chosenSystem of this,, box,, further relaying the information to the very offices to the
+plane of existence chosen by the ray that has relayed'relayed back to us this DigitalInformation.PPS+T'This computer operation of the
+Scan(09s/t')ss/t':O09('st'):0/0?)-9('hurHL:)' then relays back to the chosenSystem of this,, [box']'#P,, further relaying the information to the very offices to the
 DigitalSystem(PS:0s')t')09(-')0//9st'and what that equates translates to is this. A piece of information understood by
   f-a {Chosen}:/Pst'RadarSystem;(0\9st/vv{v}t'/qquoL:') and further identified of what just what we are looking at' either a person moving around a corridor,
-corridor or even we can even digitally express then encapsulate an entire room which is fixed-P)'atomic considerably'...(PST')'BB'{BIOP;}'BBA'{BTS((o))/xy'}'
-((/o))/xy'{Y{{Y}UIOP;}"-/'(9-0{st'/m}PIO{mm}P;"-_'?/'?/'?/'<,MNIOP<r>.>rst{Q}rvyl/_':PIO(P)9-0')PL:-_;Q?/'Q?/'PP)'AA
+or a Person moving around with a gun, or in a corridor or even we can even digitally express then encapsulate an entire room which is fixed
+-P)'atomic considerably'...(PST')'BB'{BIOP;}'BBA'{BTS((o))/xy'}'((/o))/xy'{Y{{Y}UIOP;}"-/'(9-0{st'/m}PIO{mm}P;"-_'?/'?/'?/'<,MNIOP<r>.>rst{Q}rvyl/_':
+PIO(P)9-0')PL:-_;Q?/'Q?/'PP)'AA'ASP'{ASP}
 
 //GG://
 //BB'BIOP;//
@@ -102,7 +135,7 @@ corridor or even we can even digitally express then encapsulate an entire room w
     //BB//XX//AA//PP//lL//GG/TT/QQ'QQ:("QQ:QQ;?/;L:'")':L////'0)"0)"}0)'-+'}/0")/0")*8(9-0)"?/'0)>./0")0"-")-0')'0)'"-')f'-'//
     ///BB//XX//AA//PP//lL//GG/TT/QQ'QQ:("QQ:QQ;?/;L:'")':L////'0)"0)"}0)'-+'}/0")/0")*8(9-0)"?/'0)>./0")0"-")-0')'0)'"-')f'-'///
 
-
+//{///A\\\}'{///B\\\}'{///C\\\}'{///D\\\}'{///E\\\}'{///F\\\}'{///G\\\}'{///H\\\}'{///I\\\}'{///J\\\}'{///K\\\}'{///L\\\}'{///M\\\}'{///N\\\}'{///O\\\}'{///P\\\}'{///Q\\\}'{///R\\\}'{///S\\\}'{///T\\\}'{///U\\\}'{///V\\\}'{///W\\\}'{///X\\\}'{///Y\\\}'{///Z\\\}:|k|k|k|k\k"|\':-(0);🔱'//🔱'//🔱'🔱'🔱'(0/P)
 //{//A\\}'{//B\\}'{//C\\}'{//D\\}'{//E\\}'{//F\\}'{//G\\}'{//H\\}'{//I\\}'{//J\\}'{//K\\}'{//L\\}'{//M\\}'{//N\\}'{//O\\}'{//P\\}'{//Q\\}'{//R\\}'{//S\\}'{//T\\}'{//U\\}'{//V\\}'{//W\\}'{//X\\}'{//Y\\}'{//Z\\}:|k\k"|\':-(0);🔱'//🔱'//🔱'
 //{A}'{B}'{C}'{D}'{E}'{F}'{G}'{H}'{I}'{J}'{K}'{L}'{M}'{N}'{O}'{P}'{Q}'{R}'{S}'{T}'{U}'{V}'{W}'{X}'{Y}'{Z}:|k"|\':-(0);🔱'//🔱'//🔱'//🔱'//
 //🔱🔱:🎖🎖;(P(x))0")/'L:'L:'L:'PIOP;//
@@ -123,6 +156,15 @@ corridor or even we can even digitally express then encapsulate an entire room w
 //🔱🔱:🎖🎖;(P(x))0")/'L:'L:'L:'PIOP;//
 //🔱🔱:🎖🎖;(P(x))0")/'L:'L:'L:'PIOP;//{GG}'
 (6 times)'
+
+(another'(another 6 times)'
+//🔱🔱:🎖🎖;(P(x))0")/'L:'L:'L:'PIOP;//
+//🔱🔱:🎖🎖;(P(x))0")/'L:'L:'L:'PIOP;//
+//🔱🔱:🎖🎖;(P(x))0")/'L:'L:'L:'PIOP;//{GG}'
+//🔱🔱:🎖🎖;(P(x))0")/'L:'L:'L:'PIOP;//
+//🔱🔱:🎖🎖;(P(x))0")/'L:'L:'L:'PIOP;//
+//🔱🔱:🎖🎖;(P(x))0")/'L:'L:'L:'PIOP;//{GG}'
+(6 times)')(9//0'(Pst')\\O?/'<,M.>#OST'TS#:'0)#='/0)'f.::'(#9-#0?/0?/'L:'PIO{L}::ys'##-9-0(9-#0st'{tsw/W}:Y:Y-U-I-O-{R}S#IRY/_#09)st/'st/'st/')
 //GG://'//GG://'//GG://'//{GG}://'
 
-*888(9-00:00/0?/'L:"-_'{MnMnMnIOP-P;}+/[77/00]+/='K-L:-{;}+/="-P(9-0"P?/'{Q}{QrsWERt:-;(*{L}{Lio|L:->.x<s>SxqrET:-;l:'?/'?/'?/'?/'AA
+*888(9-00:00/0?/'L:"-_'{MnMnMnIOP-P;}+/[77/00]+/='K-L:-{;}+/="-P(9-0"P?/'{Q}{QrsWERt:-;(*{L}{Lio|L:->.x<s>SxqrET:-;l:'?/'?/'?/'?/'AA'{ASP}
