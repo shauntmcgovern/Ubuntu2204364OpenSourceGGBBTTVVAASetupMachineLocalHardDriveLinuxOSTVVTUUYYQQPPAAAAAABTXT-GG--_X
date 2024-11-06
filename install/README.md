@@ -80,7 +80,7 @@ only get better overtime'*##PS('-T'0)0;L:'?/'?/'?/'as the example I have said be
 get better but run better over time because those software engineering video game leading to developments run their operations more effieciently across better
 proven hardware not only that but get more fun to play and much much more immersive.(#PS09<t>)'. If you wanna'work on Github#Github you can as I am getting
 a much better'better hand{le} on this and Marco is impressed once again this is Marco Williams leader of Playfab' and Microsoft Azure {(Servers:09)}'+<.>'P
-Again what is fixed and what is changing, this type of RadarSystem***(PS*8<s>,.t)t.>?/'v/' would need constant updates to the fixed information, the fixed information
+Again what is fixed and what is changing, this type of RadarSystem would need constant updates to the fixed information, the fixed information
 would be a form of complacent technological understanding leaving no room to grow, and that is absolutely.'(P#09'). Now with the ad(vance')s and its tough'to se#uff:(:/'0)0'
 absolutely no inclusion of Marco and he has lead this discussion of removing violence from the human phenomenological population and at stance equa(equa#)tion#P#809'<,.>.
 However and this is scary it tells us, simply the answers are their the very solution is at our door and if we can come together academically and remove our differences
@@ -166,5 +166,5 @@ PIO(P)9-0')PL:-_;Q?/'Q?/'PP)'AA'ASP'{ASP}
 //🔱🔱:🎖🎖;(P(x))0")/'L:'L:'L:'PIOP;//{GG}'
 (6 times)')(9//0'(Pst')\\O?/'<,M.>#OST'TS#:'0)#='/0)'f.::'(#9-#0?/0?/'L:'PIO{L}::ys'##-9-0(9-#0st'{tsw/W}:Y:Y-U-I-O-{R}S#IRY/_#09)st/'st/'st/')
 //GG://'//GG://'//GG://'//{GG}://'
-
 *888(9-00:00/0?/'L:"-_'{MnMnMnIOP-P;}+/[77/00]+/='K-L:-{;}+/="-P(9-0"P?/'{Q}{QrsWERt:-;(*{L}{Lio|L:->.x<s>SxqrET:-;l:'?/'?/'?/'?/'AA'{ASP}
+((---vvPS--'8<s>**--tvvt.>?=== ))'PP
