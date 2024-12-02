@@ -9,7 +9,7 @@ hands of our very General of Joints Chief of Staff'Staff are the very reasons wh
 Anything and all that is preventable leading to all, says General'General'General Charles Q. Brown and that means
 Chief Superintendent Larry Snelling of the Chicago'Chic*go Police(:''//<,0>/)O:-; thankyou;'AA(I am describing the
 very limitation:0<9>st.(st/s' Full Reine says it could be done'done[ed] by
-tomorrow/09:<,s>.st./?/(9->)0>)?/'))0:-/l;"-QUIOP;'QUIOP Larry Snelling's General Charles Q. Brown
+tomorrow/09:<,s>.st./?/(9->)0>)?/'))0:-/l;"-QUIOP;'QUIOP Larry Snelling's <u>General Charles Q. Brown</u>
 Barack Obama's our leader Larry Hoover's Ubuntu.
 
 
@@ -146,6 +146,9 @@ PIO(P)9-0')PL:-_;Q?/'Q?/'PP)'AA'ASP'{ASP}'AA
 //🔱🔱:🎖🎖;(P(x))0")/'L:'L:'L:'PIOP;//
 //🔱🔱:🎖🎖;(P(x))0")/'L:'L:'L:'PIOP;//
 //🔱🔱:🎖🎖;(P(x))0")/'L:'L:'L:'PIOP;//
+-2 more times
+{:///🔱🔱:🎖🎖;(P(x))0")/'L:'L:'L:'PIOP;//
+//🔱🔱:🎖🎖;(P(x))0")/'L:'L:'L:'PIOP;//\:'}
 (6 times)'
 
 (another 6 times)'
@@ -166,5 +169,8 @@ PIO(P)9-0')PL:-_;Q?/'Q?/'PP)'AA'ASP'{ASP}'AA
 //🔱🔱:🎖🎖;(P(x))0")/'L:'L:'L:'PIOP;//{GG}'
 (6 times)')(9//0'(Pst')\\O?/'<,M.>#OST'TS#:'0)#='/0)'f.::'(#9-#0?/0?/'L:'PIO{L}::ys'##-9-0(9-#0st'{tsw/W}:Y:Y-U-I-O-{R}S#IRY/_#09)st/'st/'st/')
 //GG://'//GG://'//GG://'//{GG}://'
-*888(9-00:00/0?/'L:"-_'{MnMnMnIOP-P;}+/[77/00]+/='K-L:-{;}+/="-P(9-0"P?/'{Q}{QrsWERt:-;(*{L}{Lio|L:->.x<s>SxqrET:-;l:'?/'?/'?/'?/'AA'{ASP}
+
+*888(9-00:00/0?/'L:"-_'{MnMnMnIOP-P;}+/[77/00]+/='K-L:-{;}+/="-PPP(9-0"P?/   '(**/save scheme)
+
+Q}{QrsWERt:-;(*{L}{Lio|L:->.x<s>SxqrET:-;l:'?/'?/'?/'?/'AA'{ASP}
 ((---vvPS--'8<s>**--tvvt.>?=== ))'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP
