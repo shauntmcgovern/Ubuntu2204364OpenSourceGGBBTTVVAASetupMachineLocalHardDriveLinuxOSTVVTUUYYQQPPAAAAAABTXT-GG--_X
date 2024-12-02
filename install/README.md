@@ -9,7 +9,7 @@ hands of our very General of Joints Chief of Staff'Staff are the very reasons wh
 Anything and all that is preventable leading to all, says General'General'General Charles Q. Brown and that means
 Chief Superintendent Larry Snelling of the Chicago'Chic*go Police(:''//<,0>/)O:-; thankyou;'AA(I am describing the
 very limitation:0<9>st.(st/s' Full Reine says it could be done'done[ed] by
-tomorrow/09:<,s>.st./?/(9->)0>)?/'))0:-/l;"-QUIOP;'QUIOP Larry Snelling's <u>General Charles Q. Brown</u>
+tomorrow/09:<,s>.st./?/(9->)0>)?/'))0:-/l;"-QUIOP;'QUIOP Larry Snelling's <ins>General Charles Q. Brown</ins>
 Barack Obama's our leader Larry Hoover's Ubuntu.
 
 
