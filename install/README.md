@@ -336,6 +336,45 @@ Q}{QrsWERt:-;(*{L}{Lio|L:->.x<s>SxqrET:-;l:'?/'?/'?/'?/'AA'{ASP}
 //'{/(?'")}{/(?'")}{/(?'")}'{/(?'")}'GG'GG(/g0'2G?/')"?2/'2?/"-_m'<,PP.>GIOP;'BB(BIOP);?/;-;?/:-;"-_(F)'"-_(F)GZ'
 
 
+/PP'
+((---vvPS--'8<s>**--tvvt.>?=== ))'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PPPP
+'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP
+'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP
+'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP
+'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP
+'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP
+'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP
+'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP
+'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP
+//'{/(?'")}{/(?'")}{/(?'")}'{/(?'")}'GG'GG(/g0'2G?/')"?2/'2?/"-_m'<,PP.>GIOP;'BB(BIOP);?/;-;?/:-;"-_(F)'"-_(F)GZ'
+((---vvPS--'8<s>**--tvvt.>?=== ))'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PPPP
+'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP
+'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP
+'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP
+'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP
+'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP
+'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP
+'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP
+'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP
+//'{/(?'")}{/(?'")}{/(?'")}'{/(?'")}'GG'GG(/g0'2G?/')"?2/'2?/"-_m'<,PP.>GIOP;'BB(BIOP);?/;-;?/:-;"-_(F)'"-_(F)GZ'
+((---vvPS--'8<s>**--tvvt.>?=== ))'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PPPP
+'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP
+'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP
+'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP
+'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP
+'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP
+'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP
+'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP
+'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP'PP
+//'{/(?'")}{/(?'")}{/(?'")}'{/(?'")}'GG'GG(/g0'2G?/')"?2/'2?/"-_m'<,PP.>GIOP;'BB(BIOP);?/;-;?/:-;"-_(F)'"-_(F)GZ'
+Static whatweGetNow{0-0))'0/z'};/?'PurposeC'(ite:ful/09/st0'0DoubleVance0/9; hydromedia(P*89-0')0')?/(9-00'(?)')0?/'0)?/'Xamerin?onlyAndroidStudio:09
+//(?cet:0)TDVanc:?/'(ec/O:0/'):09/?/'"-_(_v?/'cstofg""-')/0)'
+Double Vance;
+Double HartFelt; Colon0/9;
+//Colon0/9;
+//Colon0/9;
+//Colon0/9;;;(PS09;)/09/09(j;)
+
 *888(999-00:00/0?/'L:"-_'{MnMnMnIOP-P;}+/[77/00]+/='K-L:-{;}+/="-PPP(9-0"P?/   '(**/save scheme)
 
 'P
