@@ -1,5 +1,28 @@
 # Ubuntu2204364WhateverElseIsOnIT64cmd'PP'{BTSP/A}'AA'88(88)*/<t>.?/'
-hone System: with participating workers(Barack'Obama'ok) located eventhough they are performing under the
+Bill Bogginesworrth L{T}{T}D' intrusion_'US{Armed}Forces
+General Milley()""PST_🛡️'-D"-'{W}
+	//   'd
+
+(A)'Class{in order to compile you not only need to test this code it needs to
+compile to work alongside other programming tools, now with this UBUNTU:LIVE I can begin to enter an ID'{E}(A)'Class
+P'
+Ubuntu(*11-different-ways)*'emulation was the one chosen:PS{T}09:/;
+
+import Ubuntu.CodeWorks;
+
+Bilingual Prototype(86*C_static('method 86*C_(C)T)/C'static method:09')
+{
+	Codeworks BillAndTest = new Bill();
+	Array BillandTestArray = Bill(Array(z));
+	Focus Focus ParLibrary*86 = new List(^86*⚪C-) FullOnNext;
+	...
+
+modem.AppendImage();
+modem.ActAccordingly();
+
+}(z;)
+
+Phone System: with participating workers(Barack'Obama'ok) located eventhough they are performing under the
 	      safety and cover of the law, we face l:('criminal activity'this is Half-End-Calf)':09 w/Q"-'
 	    : Phone staff, Phoneheld, DoorSystem();
             : Security Clearance:(✔️)'
@@ -79,8 +102,7 @@ M-09'c = 3(Mi-09c;)
 M-09'c is completed implementation or WorkingFunction::-;
 
 SevenFold();
-Operation of ((theCompletion)) 09; 09; 09;:09:09;
-
+Operation of ((theCompletion)) 09; 09; 09;:09;:09;
 I technically retrieved the {USB}'devi(c)e from a Publicly Held Government Building, The Bezazian to be (exa)ct.:09cszys:-;'
 0(__/++'"|Y')'Y:UIO{Y}:-;/"-_/'.> Then aquired'acquired(:069'). There was another one available'USB. I then used one of CPL's Chromebook's 
 made by Dell(0S). With a Google Chromebook(OS)'I then installed this'.(this)(0); image upon the very same 'U{S}B::0*);
@@ -114,4 +136,4 @@ anything in a {U.S.} Government Portal'BO{44POTUS}Sttyle::-;'--):-P;:GOIP;GTI{O}
 that we have under, General Charles Q. Brown'Charles Q. Brown,, I have information on this disc'{UUSB}:"|':-;P?/'/MENT/'that means my very life and
 has taken me into my own gravesite'endsite:: with an intent to kill--for, so like I said this is an open source portal..:['8'8/2 Y{Y}ears.')):0)
 '{BTSP}'GG'AA'AA'AA'AA'{|BTSP"|'}'GG'(🛻🛻🛻)'🛻🛻🛻)'🛻🛻🛻)'🛻🛻🛻)'GGA'{GGA}%/"
-/88*88*(/*{v*{/}88.(9.99ewew/O//**'{TT}/TIOV:-;L:'/'{OST/vy:L'{['L'T'I'[::(:)/0v/y;y;OST'{OST}*089(9/'{T}O/00))}/)'PAP09
+/88*88*(/*{v*{/}88.(9.99ewew/O//**'{TT}/TIOV:-;L:'/'{OST/vy:L'{['L'T'I'[::(:)/0v/y;y;OST'{OST}*089(9/'{T}O/00))}/)'PAP09'B(X8)XT'9
