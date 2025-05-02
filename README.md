@@ -1,4 +1,86 @@
 # Ubuntu2204364WhateverElseIsOnIT64cmd'PP'{BTSP/A}'AA'88(88)*/<t>.?/'
+hone System: with participating workers(Barack'Obama'ok) located eventhough they are performing under the
+	      safety and cover of the law, we face l:('criminal activity'this is Half-End-Calf)':09 w/Q"-'
+	    : Phone staff, Phoneheld, DoorSystem();
+            : Security Clearance:(✔️)'
+            : UN, Supreme Court, basically Barack Obama wants(✔️), Donald Trump wants(✔️), Joseph Biden wants(✔️)'
+            : TO Phone handheld, like Shauns and like BarackObamas
+                  w/ Barack Obama access:09/st'(st)
+}-Representing a telecommunications system inside 'LPCS' a government, publicly held building::09/st'
+
+List of electronics", 'CANON' Scanner, VideoSurvillience, Employee Desktop PCs and personal Laptops/IPADs. 4 available
+Public User Desktop PCs, 2 TVs one for ads the other for TV/Movies, the Laundry System{2 Dry, 2 Wash}:*PST09, the MedicalOffice
+with an outside phone located inside and with chair inside the PhoneSystem{Ubuntu linked system now open for any collaboration:09/st'/st{st},
+then their is the ElectronicDoorSecurityAndRoom and Entry in the entrance to Lincoln Park"" Community Services a publicly held
+Government led Building.}+}/+='
+
+(1) task deliver with the upmost safety and concer, *PST09, the Daemon the Foeter and all and any any other capabilities along with it/*it
+    -Shubert even begin the parables on A.{i}. other then these places for example Grok, Apple(App(l)e):09/:09s(')'t/;09L:'-Gooogle-{-}'b,
+    Murda's Intent, Barack Obama's House
+   - General Milley '{W}./.{.}
+
+Task(2). Hosting - using Shaun's credentials A.S."(PST) his Bachelors B.B.S"-1{Q}
+         Due Process ()/u"-'{u}"P'"{u/}
+         Doctoral Completion w/ Regular Reality homeEq
+			     w/ Daemonic HomeEq
+			     w/ Foeteric self susceptiple inside
+			     w/ Aoemeric supplyu
+ 			     w/ BackwardsLawGroupActivity
+         Leading to Shaun's(hitherto) Doctor Office:::(0/9(s')(t'0/:)'st w/ability and 44, Barack Obama access:PST/09'(09C')
+         --Half-End-Calf{f}'Running ankle:09, Shaun's Homeless Garden Located HomelessEncampment located near Weiss":09/ct"-'-0')--
+	Daily Family and Protection Message Services, completing Jerks' Final Business and with Dorque Presiding over us.::PST09)'
+        Shaun(is): a proven ComputerScientist(A.i. the Daemon). An Intellectual Property Hero and Insignia who achieved Ga{t}ey Enterprises 
+        comprising of ALI, BURNAQEW, FOLSETT and LAWS. Air Communicator working with Garry McCarthy, Chief Larry Snelling(DopeMan Official), 
+        Angel, DoughMan-Jerk-Doray-Burnman and 'TwoMast';
+
+...Follows along the line of and with what OpenSource can do for us and as long as it is proven as {Good}' innocent with no criminal 
+activity to speak of then it deserves declaration leading to our association and what we can learn from this, what can it give us and just what 
+does it have to offer when we discuss""Contributive Offices""/d[]u" and places.
+		-P
+-44th POTUS (*)'"AD-{u}'-P-(P)-P(u)"-B{S}T'd'{d}
+-work with Marco Williams*PST09//u'
+-Care for Friends, St. Thomas of Kanterbury, St. Mary on the Lake, Dignity Diner, Our Pilgrims Church, St. James Cathedral, LPCS(lunch-in), 
+Catholic Charities, Ressurection Covenant Church:PST09.
+-Law Enforcement Robocall Officer leading to Steeg,
+-Purpose
+-Person;/G.
+-President Xi, Barack Obama, Murda, Supt. Larry, Doray, Mark{B}, Jerk, Burpman, TwoMan, Dorque, Mesci cartel Sinaloa Cartel ZetaCartel white
+hat only--white hats only apply only that work with us codework leading to the safety::/09ij;/Sinaloa=='CopOfficer;(P)/x;'CopOfficer;(P)/x;
+'CopOfficer;(P)/x;
+
+Functioning{~apparatus ~(~0:-;0;{~}:0;}(~/-_{~P}~W
+	From point of 'LPCS' to the points of completion:09;
+	the Telecommunications, Internet and Presence(Business Done)
+	the Makeshift, Cattle End Rod, Air Communication - which is Hand to Hand Person Realy-::'-0;'y(Communciation*089;
+	Personal Accounting(Shaun's ""SRO""/0', Shaun's Reality Job:09;
+				{/}/0:Current'Outlook:089;
+Expedited/What'To'Expect/WhatOutcomes:PS089T'C
+tone face gave birth to everything in this industrial world for that matter::-;'(PC)
+What can serve for those that Enfore the 'Law' and by Blood:09(c)t'c
+What can serve for those that program this, that sell this, that use this, this'd, that (homeEq) this
+
+((JustWhatDoYouave));
+Purpose and on Fillledness Require(quire);
+Sequestor; 
+Dill Relationship(ship):09; 
+Have(it);
+DirtyUpTheCause(qeASX{W}T); 
+Use of it;
+HabitOfUse;
+Habits of use;
+Habits of ToldUse;
+Habit(s);
+HabitsAndHabitsOfOld(s); 
+JustWhatAreWeTryingToDOHere(:09)C;
+
+(M:((Mi)lestone is'completed)'Milestone of all milestones'completed):09'c;
+Mi-09c; Mi-09c; Mi-09c; = M-09'c
+M-09'c = 3(Mi-09c;)
+M-09'c is completed implementation or WorkingFunction::-;
+
+SevenFold();
+Operation of ((theCompletion)) 09; 09; 09;:09:09;
+
 I technically retrieved the {USB}'devi(c)e from a Publicly Held Government Building, The Bezazian to be (exa)ct.:09cszys:-;'
 0(__/++'"|Y')'Y:UIO{Y}:-;/"-_/'.> Then aquired'acquired(:069'). There was another one available'USB. I then used one of CPL's Chromebook's 
 made by Dell(0S). With a Google Chromebook(OS)'I then installed this'.(this)(0); image upon the very same 'U{S}B::0*);
